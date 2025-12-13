@@ -8,4 +8,4 @@ im normally making another pony/offtab, so whisper to get my attention ^^ also a
 
 my strawpage has more info abt me, but im currently fixated on umamusume and pokemon! i also have outfits based on splatoon/coroika and bfdi
 
-umamusume fans pls interact!! very fixated on the game at the moment,, my current favs are shinko windy and mayano top gun!
+umamusume fans pls interact (not forcing.. obviously ^^)!! very fixated on the game at the moment,, my current favs are shinko windy and mayano top gun!
